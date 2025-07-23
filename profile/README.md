@@ -1,6 +1,8 @@
 # Aimbot CS2 
 WE offers a remarkable selection of undetectable and legit hacks for Counter-Strike 2 (CS2). Our cheats are meticulously crafted to provide an unparalleled advantage, making them ideal for competitive play on prime accounts. Take a moment to visit our store page today and unlock the path to victory. Get ready to experience gaming mastery like never before!
 
+[![756375648123](https://github.com/user-attachments/assets/ca17385a-e45f-4c23-b1c7-9f8eae157f3d)](https://y.gy/aim-botz-cs)
+
 ## Counter Strike 2 Aimbot Hack
 Imagine a situation in the virtual battlefield where you're encroaching on an enemy domain, and suddenly the long corridors of the deserted building are filled with smoke flowing from broken windows and doors. Counter Strike's newest version allows smoke to fill in large spaces and momentarily block the sightlines of the player.
 
